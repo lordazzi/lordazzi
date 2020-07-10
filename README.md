@@ -22,21 +22,7 @@ Gosto bastante de cozinha, faço macarrão, arroz e legumes, mas meus pratos fav
 
 🏆 ***Gamer***
 
-Sou um fanboy de sony, tenho um play4 e alimento um [canal no youtube](https://www.youtube.com/channel/UC1gi-Z2WAgf-624PK8mjAUA) com vinte seguidores, as vezes faço algumas streams comigo falando, mas no geral são streams muito ruins kkk... Atualmente conto com 23 platinas: 
- - This War of Mine;
- - Beholder;
- - Crash Bandicoot 1, 2, 3 e o Team Racing;
- - Spyro 1, 2 e 3;
- - Far Cry 4, 5 e primal... Atualmente estou caminhando com a platina do Far Cry 3;
- - Uncharted 1, 2, 3, 4;
- - 100% do Overcooked (não tem plantina pra este);
- - 98% do Death Stranding (tomei [glitch](https://www.youtube.com/watch?v=eEoCH3SmSOA) no último troféu);
- - Hatchet & Clank;
- - Detroit: Become a Human;
- - The Sims 4;
- - The Witcher 3, com todas DLCs;
- - Marvel Spider Man, com todas DLCs;
- - Horizon Zero Dawn, com todas as DLCs;
+Sou um fanboy de sony, tenho um play4 e alimento um [canal no youtube](https://www.youtube.com/channel/UC1gi-Z2WAgf-624PK8mjAUA) com vinte seguidores, as vezes faço algumas streams comigo falando, mas no geral são streams muito ruins kkk... Atualmente conto com 23 platinas.
  
 uff...
  
