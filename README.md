@@ -20,5 +20,7 @@ Gosto de descobri novas receiras, principalmente as que envolvem assar carne: co
 
 Sou um fanboy de sony, tenho um play4 e alimento um [canal no youtube](https://www.youtube.com/channel/UC1gi-Z2WAgf-624PK8mjAUA) com vinte seguidores, as vezes faço algumas streams comigo falando, mas no geral eu sou a única pessoa que assiste... Atualmente conto com 28 platinas.
  
-uff...
+🌼 ***Cultivador***
+
+Gosto de ter muitas plantinhas, principalmente as que posso consumir.
 
