@@ -3,7 +3,8 @@ Sou Ricardo Azzi Silva
 
 💾 ***Programador***
 
-Trabaho desde 2014 nas Casas Bahia como desenvolvedor Front-End, TypeScript (strict, sempre) e Angular, sigo atuando como liderança técnica.
+Trabalho hoje com a Vericode, em uma rotina de trabalho e estudo.
+Trabalhei oito anos nas Casas Bahia como desenvolvedor JavaScript, TypeScript, Angular e atuando como liderança técnica.
 Trabalhei no começo de minha carreira com PHP até conseguir a certificação no final de 2013 [ZEND024290](https://www.zend-zce.com/en/yellow-pages/ZEND024290).
 Trabalhei em alguns momentos com C# e Java também, mas não são minhas favoritas.
 
